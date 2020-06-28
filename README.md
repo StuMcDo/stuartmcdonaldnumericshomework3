@@ -1,0 +1,1 @@
+# stuartmcdonaldnumericshomework3
